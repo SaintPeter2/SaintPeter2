@@ -7,7 +7,6 @@
 
 - 🔭 I’m currently working on a page in order to create new things.
 - 🌱 I’m currently learning many things
-- 🤔 I’m looking for help with some partner
 - 💬 Ask me about some interesting thing
 
 
